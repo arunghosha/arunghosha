@@ -9,3 +9,5 @@ You can connect me via:
 [Instagram](https://www.instagram.com/_kryp_tonian__/)
 
 [LinkedIn](https://www.linkedin.com/in/arun-ghosh-a-3b7bb2250/)
+
+[Medium](https://medium.com/@_kryp_tonian__)
