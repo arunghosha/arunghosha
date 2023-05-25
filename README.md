@@ -8,4 +8,4 @@ You can connect me via:
 
 [Instagram](https://www.instagram.com/_kryp_tonian__/)
 
-[LinkedIN](https://www.linkedin.com/in/arun-ghosh-a-3b7bb2250/)
+[LinkedIn](https://www.linkedin.com/in/arun-ghosh-a-3b7bb2250/)
