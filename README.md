@@ -6,8 +6,6 @@ I'm ***Arun***, a normal Civil Engineering👷 Bachelor student **@NSSCE Palakka
 ### Tighten your seatbelts💺 and HERE WE GO!!!🤩🤩🤩
 You can connect me via:
 
-<a href="https://www.instagram.com/_kryp_tonian__/"><img src="https://github.com/arunghosha/arunghosha/assets/119685058/b8a52f34-f54b-4d47-99f4-726ad2dc9c63" width="50"></a>
-
-[LinkedIn](https://www.linkedin.com/in/arun-ghosh-a-3b7bb2250/)
-
-[Medium](https://medium.com/@_kryp_tonian__)
+<a href="https://www.instagram.com/_kryp_tonian__/"><img src="https://upload.wikimedia.org/wikipedia/commons/thumb/e/e7/Instagram_logo_2016.svg/2048px-Instagram_logo_2016.svg.png" width="40"></a>  
+<a href="https://www.linkedin.com/in/arun-ghosh-a-3b7bb2250/"><img src="https://upload.wikimedia.org/wikipedia/commons/thumb/c/ca/LinkedIn_logo_initials.png/900px-LinkedIn_logo_initials.png?20140125013055" width="40"></a>  
+<a href="https://medium.com/@_kryp_tonian__"><img src="https://upload.wikimedia.org/wikipedia/commons/thumb/f/fa/Medium_Logo.webp/220px-Medium_Logo.webp.png?20201209043112" width="40"></a>
