@@ -10,5 +10,4 @@ You can connect me via:
 
 Clubs & Organizations:
 
-<a href="https://app.mulearn.org/profile/arunghosha@mulearn"><img src="https://mulearn.notion.site/image/https%3A%2F%2Fs3-us-west-2.amazonaws.com%2Fsecure.notion-static.com%2Fcc29eb70-ce03-4026-81e3-d28f31465c4d%2FLogo.png?id=f9ffe35e-15e1-4188-b1a8-34b9b5d23535&table=block&spaceId=be508055-0311-452f-8715-e58ce6ed999f&width=2000&userId=&cache=v2" width="200"></a>
-
+<a href="https://app.mulearn.org/profile/arunghosha@mulearn"><img src="https://mulearn.notion.site/image/https%3A%2F%2Fs3-us-west-2.amazonaws.com%2Fsecure.notion-static.com%2Fcc29eb70-ce03-4026-81e3-d28f31465c4d%2FLogo.png?id=f9ffe35e-15e1-4188-b1a8-34b9b5d23535&table=block&spaceId=be508055-0311-452f-8715-e58ce6ed999f&width=2000&userId=&cache=v2" width="200"></a> &nbsp; <a href="https://www.linkedin.com/company/celestia-nssce/mycompany/"><img src="https://media.licdn.com/dms/image/C560BAQGErc7iB_Xdyw/company-logo_200_200/0/1622467231735?e=1696464000&v=beta&t=lJryhp9KZgfsbfWc63ibMGFCeYeXmCW1dfZ2TJS4oSE" width="40"></a>
